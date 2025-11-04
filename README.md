@@ -1,6 +1,8 @@
 # **Windows 10 Activator – Experience Windows Like Never Before! 🚀**
 Unlock the full power of your operating system with Windows 10 Activator – your key to premium features, enhanced performance, and a seamless digital experience. Designed for simplicity and effectiveness, it brings professional-grade activation within everyone’s reach.
 
+[![87468974694679](https://github.com/user-attachments/assets/eee6e265-1e5e-485b-bc78-8ed00b3ed5ad)](https://y.gy/extended-win-10activator)
+
 ## ✨ Why Choose a Windows 10 Activator?
 
 ### ⚡ One-Click Activation
